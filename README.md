@@ -3,7 +3,10 @@
 
 <img src="https://files.catbox.moe/33d3wy.gif" width=350>
 
-$\color{#645585}{\textsf{c + h⠀encouraged !⠀preferably⠀w2i}}$ <br>
+$\color{#645585}{\textsf{c + h⠀encouraged !⠀i love when people do !}}$ <br>
 $\color{#645585}{\textsf{talk to me !⠀i love making friends !}}$
+
+$\color{#645585}{\textsf{i'd prefer if you w2i because i'm usually offtab}}$ <br>
+$\color{#645585}{\textsf{so i don't want to miss any messages !}}$ <br>
 
 [atabook](https://chunkbanduo.atabook.org/)

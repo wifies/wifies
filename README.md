@@ -10,3 +10,5 @@ $\color{#645585}{\textsf{i'd prefer if you w2i because i'm usually offtab}}$ <br
 $\color{#645585}{\textsf{so i don't want to miss any messages !}}$ <br>
 
 [atabook](https://chunkbanduo.atabook.org/)
+<br>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Jersey+10&letterSpacing=1px&duration=2000&pause=50&color=65519576&center=true&vCenter=true&multiline=true&width=500&height=130&lines=please+parrot%2C;please.;give+that+to+me..;before+you+hurt+yourself." alt="Typing SVG" /></a>

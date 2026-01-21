@@ -1,7 +1,7 @@
 <div align="center">
 <img src="https://komarev.com/ghpvc/?username=wifies&label=_⠀_໒˳͡　_fih_⠀_&color=504cc2&style=flat" alt="wifies" /> </p>
 
-<img src="https://files.catbox.moe/47edis.png" width=350>
+<img src="https://files.catbox.moe/47edis.png" width=350> <br>
 
 $\color{#273875}{\textsf{c + h⠀encouraged !⠀i love when people do !}}$ <br>
 $\color{#273875}{\textsf{talk to me !⠀i'm kind of bad at starting convos..}}$ <br>

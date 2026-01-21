@@ -3,11 +3,11 @@
 
 <img src="https://files.catbox.moe/47edis.png" width=350>
 
-$\color{#645585}{\textsf{c + h⠀encouraged !⠀i love when people do !}}$ <br>
-$\color{#645585}{\textsf{talk to me !⠀i'm kind of bad at starting convos..}}$ <br>
-$\color{#645585}{\textsf{but i can continue it,⠀i love making friends !}}$ <br>
+$\color{#3558ab}{\textsf{c + h⠀encouraged !⠀i love when people do !}}$ <br>
+$\color{#3558ab}{\textsf{talk to me !⠀i'm kind of bad at starting convos..}}$ <br>
+$\color{#3558ab}{\textsf{but i can continue it,⠀i love making friends !}}$ <br>
 
-$\color{#645585}{\textsf{i'd prefer if you w2i because i'm usually offtab}}$ <br>
-$\color{#645585}{\textsf{so i don't want to miss any messages !}}$ <br>
+$\color{#3558ab}{\textsf{i'd prefer if you w2i because i'm usually offtab}}$ <br>
+$\color{#3558ab}{\textsf{so i don't want to miss any messages !}}$ <br>
 
 [atabook](https://chunkbanduo.atabook.org/)⠀ 𓈒 ⠀[prns.cc](https://pronouns.cc/imperialfireduo)

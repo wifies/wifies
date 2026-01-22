@@ -1,7 +1,7 @@
 <div align="center">
-<img src="https://komarev.com/ghpvc/?username=wifies&label=_⠀_໒˳͡　_fih_⠀_&color=504cc2&style=flat" alt="wifies" /> </p>
+<img src="https://komarev.com/ghpvc/?username=wifies&label=_⠀_໒˳͡　_fih_⠀_&color=495bc4&style=flat" alt="wifies" /> </p>
 
-<img src="https://files.catbox.moe/47edis.png" width=350> <br>
+<img src="https://files.catbox.moe/cmbds0.png" width=250> <br>
 
 $\color{#273875}{\textsf{c + h⠀is always okay unless stated otherwise !}}$ <br>
 $\color{#273875}{\textsf{i'd prefer if you w2i because i'm usually offtab}}$ <br>
